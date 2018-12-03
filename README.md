@@ -1,1 +1,1 @@
-# NaucnaCentrala
+Naucna centrala
